@@ -1,18 +1,21 @@
-![](https://files.catbox.moe/8xmvvk.png)
+![](https://file.garden/ZSD6qQh9SRsD-dy3/dividers/dotted_bow.png)
 <div align="center">
 
-![](https://files.catbox.moe/ffbp2p.png)
+![](https://i.postimg.cc/8k7gTzZf/E1-D45504-3-C34-4209-98-A0--353922555476.png)
 <div align="center">
-	<img src="https://cdn.discordapp.com/attachments/1189380633882021920/1258273131051880490/yNDFSdf.png?ex=668771ac&is=6686202c&hm=aa4b4c6bef76139fd82e53c10eae47bde1413f91c36639dec712578ea20077f1&">
+	<img src="https://cdn.discordapp.com/attachments/1189380633882021920/1261506303465881701/XSbbtjb.png?ex=669334cc&is=6691e34c&hm=2b1f85cf9f6be01f3feb208dddabf23ed2c363cf746b1de2cd2081f550246c72&">
 </div>
 <div align="center">
 <h1>
-" if you want me, come and steal me. i’ll follow the will of my inner monster. "
-
 <div align="center">
-	<img src="https://files.catbox.moe/y8jlqn.png">
+<sup><sub>![retrospring](https://retrospring.net/@freethecanine)</sub></sup> 
+<div align="center">
+	<img src="https://i.ibb.co/Yjc4yT9/59-F4-FEAE-1554-455-D-90-A3-4-D5-B300-FD3-DA.png">
+</div>
+<div align="center">
+	<img src="https://i.postimg.cc/8k7gTzZf/E1-D45504-3-C34-4209-98-A0--353922555476.png">
 </div>
 
 <div align="center">
-	<img src="https://files.catbox.moe/2qrpjo.png">
+	<img src="https://file.garden/ZSD6qQh9SRsD-dy3/dividers/dotted_bow_bottom.png">
 </div>
