@@ -8,7 +8,9 @@
 <div align="center">
 <h1>
 <div align="center">
-<sup><sub>[retrospring](https://retrospring.net/@freethecanine)</sub></sup> 
+<sup><sub><sub>𝐢'𝐥𝐥 𝐡𝐞𝐱 𝐲𝐨𝐮, 𝐢'𝐥𝐥 𝐩𝐨𝐬𝐬𝐞𝐬𝐬 𝐲𝐨𝐮</sub></sup></sup>
+ 
+<sup><sub><sup>𝐲𝐨𝐮'𝐥𝐥 𝐛𝐞𝐠 𝐦𝐞 𝐭𝐨 𝐜𝐨𝐦𝐞 𝐬𝐞𝐱 𝐲𝐨𝐮</sub></sup></sup>
 <div align="center">
 	<img src="https://i.ibb.co/Yjc4yT9/59-F4-FEAE-1554-455-D-90-A3-4-D5-B300-FD3-DA.png">
 </div>
