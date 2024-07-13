@@ -8,7 +8,7 @@
 <div align="center">
 <h1>
 <div align="center">
-<sup><sub>![retrospring](https://retrospring.net/@freethecanine)</sub></sup> 
+<sup><sub>[retrospring](https://retrospring.net/@freethecanine)</sub></sup> 
 <div align="center">
 	<img src="https://i.ibb.co/Yjc4yT9/59-F4-FEAE-1554-455-D-90-A3-4-D5-B300-FD3-DA.png">
 </div>
