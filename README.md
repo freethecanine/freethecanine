@@ -1,6 +1,8 @@
 ![](https://file.garden/ZSD6qQh9SRsD-dy3/dividers/dotted_bow.png)
 <div align="center">
 	<img src="https://cdn.discordapp.com/attachments/1189380633882021920/1261506303465881701/XSbbtjb.png?ex=669334cc&is=6691e34c&hm=2b1f85cf9f6be01f3feb208dddabf23ed2c363cf746b1de2cd2081f550246c72&">
+<div align="center">
+	<img src="https://cdn.discordapp.com/attachments/1189380633882021920/1262624427301011466/xSJdIMT.png?ex=66974621&is=6695f4a1&hm=f59e4cde44ab36c4264988b7cc298565441cf99db559ed047f1972a17166a914&">
 </div>
 <div align="center">
 <h1>
