@@ -9,6 +9,8 @@
 <sup><sub><sub>𝘆𝗼𝘂 𝗱𝗼 𝗶𝘁 𝘁𝗼 𝗺𝗲 𝘀𝗼 𝘄𝗲𝗹𝗹, 𝗵𝘆𝗽𝗻𝗼𝘁𝗶𝗰, 𝘁𝗮𝗸𝗶𝗻𝗴 𝗼𝘃𝗲𝗿 𝗺𝗲</sub></sup></sup>
 
  <sup><sub><sup>𝗺𝗮𝗸𝗲 𝗺𝗲 𝗳𝗲𝗲𝗹 𝗹𝗶𝗸𝗲 𝘀𝗼𝗺𝗲𝗼𝗻𝗲 𝗲𝗹𝘀𝗲</sub></sup></sup>
+
+![](https://komarev.com/ghpvc/?username=freethecanine&color=000000&style=flat-square)
 	
 <img src="https://cdn.discordapp.com/attachments/1189380633882021920/1226409933159927888/9d2df1b7bef43329d7f04771471fae0417b5ef04.png?ex=66a5dd41&is=66a48bc1&hm=10094a353e0dfc448d5279ca8da102a3cd6da37326a23b49f83ed20a0bfa84d2&">
 </div>
