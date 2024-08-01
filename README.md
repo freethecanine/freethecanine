@@ -8,7 +8,7 @@
 <div align="center">
 <sup><sub><sub>𝐞𝐱𝐭𝐫𝐚 𝐥𝐢𝐧𝐤𝐬</sub></sup></sup>
 
- <sup><sub>[carrd](https://freethecanine.carrd.co) [atabook](https://freethecanine.atabook.org) [prns.cc](https://pronouns.cc/@canine_collective/freethecanine) [boundaries](https://rentry.co/bosptboundries)</sup></sup>
+ <sup><sub>[carrd](https://freethecanine.carrd.co) [atabook](https://freethecanine.atabook.org) [prns.cc](https://pronouns.cc/@canine_collective/freethecanine) [boundaries](https://rentry.co/bosptboundries) [system patreon](https://www.patreon.com/canine_collective)</sup></sup>
 
 ![](https://komarev.com/ghpvc/?username=freethecanine&color=000000&style=flat-square)
 	
