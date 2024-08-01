@@ -6,9 +6,9 @@
 <div align="center">
 <h1>
 <div align="center">
-<sup><sub><sub>𝐥𝐢𝐧𝐤𝐬</sub></sup></sup>
+<sup><sub><sub>𝐞𝐱𝐭𝐫𝐚 𝐥𝐢𝐧𝐤𝐬</sub></sup></sup>
 
- <sup><sub>[carrd](https://freethecanine.carrd.co) [discord](discord.com/users/672611639933272086) [atabook](https://freethecanine.atabook.org) [retrospring](retrospring.net/@freethecanine) [prns.cc](https://pronouns.cc/@canine_collective/freethecanine) [boundaries](https://rentry.co/bosptboundries)</sup></sup>
+ <sup><sub>[carrd](https://freethecanine.carrd.co) [atabook](https://freethecanine.atabook.org) [prns.cc](https://pronouns.cc/@canine_collective/freethecanine) [boundaries](https://rentry.co/bosptboundries)</sup></sup>
 
 ![](https://komarev.com/ghpvc/?username=freethecanine&color=000000&style=flat-square)
 	
