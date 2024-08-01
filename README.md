@@ -1,14 +1,14 @@
 ![](https://cdn.discordapp.com/attachments/1189380633882021920/1226409857599406181/9d2df1b7bef43329d7f04771471fae0417b5ef04.png?ex=66a5dd2f&is=66a48baf&hm=161750bcb5e28a78b3a8fbc6ed0c98acbeb187291bde44f0652584f689c5c6ac&)
 <div align="center">
-	<img src="https://cdn.discordapp.com/attachments/1189380634188185608/1240183828849360946/Untitled21_20240515000613.png?ex=66a5e032&is=66a48eb2&hm=f9a37064a828ca97cd257311bb86f47c0f8a607915ba7f0038068b15fc378755&">
+<img src="https://cdn.discordapp.com/attachments/1189380633882021920/1266757038743228426/PsBFgi3.png?ex=66ac3dad&is=66aaec2d&hm=48604e264327ab7e76b1c0f84c9dadcf875c30c490143b23e1e1df26c5ee947a&">
 <div align="center">
 </div>
 <div align="center">
 <h1>
 <div align="center">
-<sup><sub><sub>𝘆𝗼𝘂 𝗱𝗼 𝗶𝘁 𝘁𝗼 𝗺𝗲 𝘀𝗼 𝘄𝗲𝗹𝗹, 𝗵𝘆𝗽𝗻𝗼𝘁𝗶𝗰, 𝘁𝗮𝗸𝗶𝗻𝗴 𝗼𝘃𝗲𝗿 𝗺𝗲</sub></sup></sup>
+<sup><sub><sub>𝐥𝐢𝐧𝐤𝐬</sub></sup></sup>
 
- <sup><sub><sup>𝗺𝗮𝗸𝗲 𝗺𝗲 𝗳𝗲𝗲𝗹 𝗹𝗶𝗸𝗲 𝘀𝗼𝗺𝗲𝗼𝗻𝗲 𝗲𝗹𝘀𝗲</sub></sup></sup>
+ <sup><sub><sup>[carrd](https://freethecanine.carrd.co) [discord](discord.com/users/672611639933272086) [atabook](https://freethecanine.atabook.org) [retrospring](retrospring.net/@freethecanine)</sub></sup></sup>
 
 ![](https://komarev.com/ghpvc/?username=freethecanine&color=000000&style=flat-square)
 	
