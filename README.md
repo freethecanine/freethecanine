@@ -8,7 +8,7 @@
 <div align="center">
 <sup><sub><sub>𝐥𝐢𝐧𝐤𝐬</sub></sup></sup>
 
- <sup><sub><sub/>[carrd](https://freethecanine.carrd.co) 𓏴 [atabook](https://freethecanine.atabook.org) 𓏴 [prns.cc](https://pronouns.cc/@canine_collective/freethecanine) 𓏴 [boundaries](https://rentry.co/bosptboundries) 𓏴 [system patreon](https://www.patreon.com/canine_collective) 𓏴 [retrospring](https://retrospring.net/@freethecanine) 𓏴 [discord](https://discord.com/users/672611639933272086) 𓏴 [lovemail](https://rentry.co/mylovelybiggies)</sup></sup><sub>
+ <sup><sub><sub/> 𓏴 [carrd](https://freethecanine.carrd.co) 𓏴 [atabook](https://freethecanine.atabook.org) 𓏴 [prns.cc](https://pronouns.cc/@canine_collective/freethecanine) 𓏴 [boundaries](https://rentry.co/bosptboundries) 𓏴 [system patreon](https://www.patreon.com/canine_collective) 𓏴 [retrospring](https://retrospring.net/@freethecanine) 𓏴 [discord](https://discord.com/users/672611639933272086) 𓏴 [lovemail](https://rentry.co/mylovelybiggies) 𓏴 </sup></sup><sub>
 
 ![](https://komarev.com/ghpvc/?username=freethecanine&color=000000&style=flat-square)
 	
