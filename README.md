@@ -10,7 +10,7 @@
 
  <sup><sub><sub/>[atabook](https://freethecanine.atabook.org) 𓏴 [retrospring](https://retrospring.net/@freethecanine)</sup></sup><sub>
 
-<sup><sub><sub/>[discord](https://discord.com/users/672611639933272086) 𓏴 [prns.cc](https://pronouns.cc/@canine_collective/freethecanine) 𓏴 [boundaries](https://rentry.co/bosptboundries) 𓏴 [system patreon](https://www.patreon.com/canine_collective)</sup></sup><sub>
+<sup><sub><sub/>[prns.cc](https://pronouns.cc/@canine_collective/freethecanine) 𓏴 [boundaries](https://rentry.co/bosptboundries) 𓏴 [system patreon](https://www.patreon.com/canine_collective)</sup></sup><sub>
 
 ![](https://komarev.com/ghpvc/?username=freethecanine&color=000000&style=flat-square)
 	
