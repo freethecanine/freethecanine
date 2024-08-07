@@ -12,7 +12,7 @@
 
 <sup><sub><sub/>[prns.cc](https://pronouns.cc/@canine_collective/freethecanine) 𓏴 [boundaries](https://rentry.co/bosptboundries) 𓏴 [system patreon](https://www.patreon.com/canine_collective)</sup></sup><sub>
 
-![](https://komarev.com/ghpvc/?username=freethecanine&color=000000&style=flat-square)
+![](https://komarev.com/ghpvc/?username=freethecanine&color=000000&style=flat-square&label=𖥔+)
 	
 <img src="https://i.postimg.cc/Z5DhvPTS/rwccl1.png">
 </div>
