@@ -7,15 +7,21 @@
 <h1>
 <div align="center">
 
+<div align="center">
+
 <sup><sub>[𝐫𝐞𝐧𝐭𝐫𝐲](https://rentry.co/freethecanine)</sup></sup>
+<div align="center">
+<div align="center">
 
-<sup><sub><sub>𝐬𝐞𝐧𝐝 𝐦𝐞 𝐬𝐨𝐦𝐞𝐭𝐡𝐢𝐧𝐠</sub></sup></sup>
+x
 
-<sup><sub><sub/>[𝐚𝐭𝐚𝐛𝐨𝐨𝐤](https://freethecanine.atabook.org) 𓏴 [𝐫𝐞𝐭𝐫𝐨𝐬𝐩𝐫𝐢𝐧𝐠](https://retrospring.net/@freethecanine)</sup></sup><sub>
+<sup><sup>[𝐬𝐞𝐧𝐝 𝐦𝐞 𝐬𝐨𝐦𝐞𝐭𝐡𝐢𝐧𝐠](https://guns.lol/freethecanine)</sub><sup>
+<div align="center">
+<div align="center">
+<img src="https://i.postimg.cc/wvnX1Grm/3h4br4.png">
+<div align="center">
 
----
-
-<sup><sub><sub>[𝐛𝐨𝐮𝐧𝐝𝐚𝐫𝐢𝐞𝐬](https://rentry.co/bosptboundries) 𓏴 [𝐬𝐲𝐬𝐭𝐞𝐦 𝐩𝐚𝐭𝐫𝐞𝐨𝐧](https://www.patreon.com/canine_collective)</sup></sup><sub>
+<sup><sub><sub>[𝐛𝐨𝐮𝐧𝐝𝐚𝐫𝐢𝐞𝐬](https://rentry.co/bosptboundries) x [𝐬𝐲𝐬𝐭𝐞𝐦 𝐩𝐚𝐭𝐫𝐞𝐨𝐧](https://www.patreon.com/canine_collective)</sup></sup><sub>
 
 ![](https://komarev.com/ghpvc/?username=freethecanine&color=000000&style=flat-square&label=𖥔+)
 	
